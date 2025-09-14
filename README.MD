@@ -1,11 +1,7 @@
 Hi 👋, I'm Abbey Dockum
 Senior Student at James Madison Universtiy
-
-I’m currently a Public Policy and Adminstration Major and Digital Studies Minor
-
-How to reach me abbeydockum@aol.com &804-994-8353
-
-Fun fact I love digital marketing
+Public Policy & Administration major with minors in Public Policy and Digital Studies at JMU. Interested in the intersection of politics and social media
+How to reach me abbeydockum@aol.com
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
