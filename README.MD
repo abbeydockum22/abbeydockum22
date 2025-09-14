@@ -1,11 +1,13 @@
-<h1 align="center">Hi 👋, I'm Abbey Dockum</h1>
+<h1 align="center">Hi! I'm Abbey Dockum</h1>
 <h3 align="center">Senior at James Madison University</h3>
 
 - 🌱 My major is **Public Policy and Administration with a Digital Studies Minor**
 
-- 💬 Ask me about **digital marketing and social media! I worked as Campus Marketing Intern at The Hang Loose Hut!**
+- 💬 Ask me about **digital marketing and social media! I worked as Campus Marketing Intern at The Hang Loose Hut, where I sell sorority and fratnernity merch!**
 
 - 📫 How to reach me **abbeydockum@aol.com or 804-994-8353**
+
+- 📄 Know about my experiences [studying abroad in the Netherlands, where I studied Public Management and Governance for environmental sustainability!](studying abroad in the Netherlands, where I studied Public Management and Governance for environmental sustainability!)
 
 - ⚡ Fun fact **I want a career in social media politics**
 
