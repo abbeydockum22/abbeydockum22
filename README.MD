@@ -7,8 +7,6 @@
 
 - 📫 How to reach me **abbeydockum@aol.com or 804-994-8353**
 
-- 📄 Know about my experiences [studying abroad in the Netherlands, where I studied Public Management and Governance for environmental sustainability!](studying abroad in the Netherlands, where I studied Public Management and Governance for environmental sustainability!)
-
 - ⚡ Fun fact **I want a career in social media politics**
 
 <h3 align="left">Connect with me:</h3>
