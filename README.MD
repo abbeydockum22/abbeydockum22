@@ -7,7 +7,7 @@
 
 - 📫 How to reach me abbeydockum@aol.com or 804-994-8353
 
-- ⚡ Fun fact I graduate in May of 2026, and I am looking for a career in social media politics. I have past expercience studying abroad in the Netherlands, where I took classes in Public Managment and Governance for Enviornmental Stability.
+- ⚡ Fun fact I graduate in May of 2026, and I am looking for a career in social media politics. I have past experience studying abroad in the Netherlands, where I took classes in Public Managment and Governance for Enviornmental Stability.
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
