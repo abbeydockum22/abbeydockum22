@@ -3,11 +3,11 @@
 
 - 🌱 My major is **Public Policy and Administration with a Digital Studies Minor**
 
-- 💬 Ask me about **digital marketing and social media! I worked as Campus Marketing Intern at The Hang Loose Hut, where I sell sorority and fratnernity merch!**
+- 💬 Ask me about **digital marketing and social media! I worked as Campus Marketing Intern at The Hang Loose Hut, where I sell sorority and fratnernity merch for college campuses across the country!**
 
 - 📫 How to reach me **abbeydockum@aol.com or 804-994-8353**
 
-- ⚡ Fun fact **I want a career in social media politics**
+- ⚡ Fun fact **I am looking for a career in social media politics. **
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
