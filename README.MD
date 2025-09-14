@@ -3,9 +3,9 @@
 
 - 🌱 I’m currently learning **Public Policy and Digital Studies**
 
-- 📫 How to reach me **abbeydockum@aol.com**
+- 📫 How to reach me **abbeydockum@aol.com 804-994-8353
 
-- ⚡ Fun fact **I love ice coffee**
+- ⚡ Fun fact **I love digital marketing
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
