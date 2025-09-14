@@ -1,11 +1,11 @@
-<h1 align="center">Hi 👋, I'm Abbey Dockum</h1>
-<h3 align="center">Student at James Madison</h3>
+Hi 👋, I'm Abbey Dockum
+Senior Student at James Madison Universtiy
 
-- 🌱 I’m currently learning **Public Policy and Digital Studies**
+I’m currently a Public Policy and Adminstration Major and Digital Studies Minor
 
-- 📫 How to reach me **abbeydockum@aol.com 804-994-8353
+How to reach me abbeydockum@aol.com &804-994-8353
 
-- ⚡ Fun fact **I love digital marketing
+Fun fact I love digital marketing
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
