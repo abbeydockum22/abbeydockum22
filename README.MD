@@ -5,7 +5,7 @@
 
 - 💬 Ask me about **digital marketing and social media! I work as a Campus Marketing Intern at The Hang Loose Hut, where I sell sorority and fraternity merch for college students across the country!**
 
-- 📫 How to reach me **abbeydockum@aol.com or 804-994-8353
+- 📫 How to reach me abbeydockum@aol.com or 804-994-8353
 
 - ⚡ Fun fact I graduate in May of 2026, and I am looking for a career in social media politics.
 
