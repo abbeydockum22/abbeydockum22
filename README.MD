@@ -1,5 +1,5 @@
 <h1 align="center">Hi! I'm Abbey Dockum</h1>
-<h3 align="center">Senior at James Madison University</h3>
+<h3 align="center">Senior Student at James Madison University</h3>
 
 - 🌱 My major is **Public Policy and Administration with a Digital Studies Minor**
 
