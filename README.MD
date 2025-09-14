@@ -3,7 +3,7 @@
 
 - 🌱 My major is **Public Policy and Administration with a Digital Studies Minor**
 
-- 💬 Ask me about **digital marketing and social media! I worked as Campus Marketing Intern at The Hang Loose Hut, where I sell sorority and fraternity merch for college students across the country!**
+- 💬 Ask me about **digital marketing and social media! I work as a Campus Marketing Intern at The Hang Loose Hut, where I sell sorority and fraternity merch for college students across the country!**
 
 - 📫 How to reach me **abbeydockum@aol.com or 804-994-8353
 
