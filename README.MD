@@ -1,6 +1,7 @@
 Hi 👋, I'm Abbey Dockum
 Senior Student at James Madison Universtiy
-Public Policy & Administration major with minors in Public Policy and Digital Studies at JMU. Interested in the intersection of politics and social media
+Public Policy & Administration major with a minor Digital Studies at JMU. 
+Interested in the intersection of politics and social media
 How to reach me abbeydockum@aol.com
 
 <h3 align="left">Connect with me:</h3>
