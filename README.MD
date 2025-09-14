@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **abbeydockum@aol.com or 804-994-8353**
 
-- ⚡ Fun fact **I am looking for a career in social media politics. **
+- ⚡ Fun fact **I graduate in May 2026, and I am looking for a career in social media politics. **
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
